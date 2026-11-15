@@ -1,4 +1,6 @@
-(https://imagepaste.org/i/g6nmnmtn.gif
+<img width="783" height="409" alt="lv_0_20261114204143-ezgif com-optimize" src="https://github.com/user-attachments/assets/6a339f8a-7622-4c1a-8bf1-bd1a3b64a46d" />
+
+
 
 
 <!--
