@@ -1,4 +1,4 @@
-(lv_0_20261114204143-ezgif.com-effects.gif)
+(https://imagepaste.org/i/g6nmnmtn.gif
 
 
 <!--
