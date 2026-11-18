@@ -1,5 +1,4 @@
-<img width="400" height="100" alt="lv_0_20261114204143-ezgif com-optimize" src="https://github.com/user-attachments/assets/6a339f8a-7622-4c1a-8bf1-bd1a3b64a46d" />
-
+<img width="400" height="150" alt="lv_0_20261114204143-ezgif com-optimize" src="https://github.com/user-attachments/assets/739a4bc2-3e1f-4c12-a20c-3f8b2c03c4ae" />
 
 
 
