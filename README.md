@@ -1,4 +1,6 @@
-<p align="center"> <img width="450" height="200" alt="lv_0_20261114204143-ezgif com-optimize" src="https://github.com/user-attachments/assets/739a4bc2-3e1f-4c12-a20c-3f8b2c03c4ae" /> </p>
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&pause=1000&color=FFFFFF&width=435&lines=There's+room+at+the+top+they+are+telling+you+still+;But+first+you+must+learn+how+to+smile+as+you+kill;If+you+want+to+be+like+the+folks+on+the+hill;A+working+class+hero+is+something+to+be+." alt="Typing SVG" /></a> </p>
+
+<img width="783" height="409" alt="lv_0_20261114204143-ezgif com-optimize" src="https://github.com/user-attachments/assets/d56d1e9b-e10e-409a-a73d-fc1ee0f901d8" />
 
 
 
